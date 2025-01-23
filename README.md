@@ -2,7 +2,7 @@
 Felipe
 17 anos
 
-- 🔭 Estou trablhando em: por enquanto nada ainda
+- 🔭 Estou trabalhando em: por enquanto nada ainda
 - 🌱 Estou aprendendo: programação
 - 👯 Eu vou colaborar com: não vou
 - 🤔 Preciso de ajuda com: nada
