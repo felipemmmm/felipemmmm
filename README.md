@@ -12,3 +12,5 @@ Felipe
 - ⚡ Fun fact: sou surdo do ouvido esquerdo
 
 ᓚᘏᗢ
+
+![FunnyCatGIF](https://github.com/user-attachments/assets/a9fdece2-963e-4321-9c0c-590a12c0ac0e)
