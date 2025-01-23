@@ -7,5 +7,5 @@
 - 💬 Ask me about: qualquer coisa
 - 📫 How to reach me: (16) 996337118
 - 😄 Pronouns: Ele/Dele
-- ⚡ Fun fact: sou surdo
+- ⚡ Fun fact: sou surdo do ouvido esquerdo
 
