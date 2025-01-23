@@ -1,12 +1,14 @@
 ## mestre dos programas ^_~
+Felipe
+17 anos
 
-- 🔭 I’m currently working on: por enquanto nada ainda
-- 🌱 I’m currently learning: programação
-- 👯 I’m looking to collaborate on: não vou
-- 🤔 I’m looking for help with: nada
-- 💬 Ask me about: qualquer coisa
-- 📫 How to reach me: (16) 996337118
-- 😄 Pronouns: Ele/Dele
+- 🔭 Estou trablhando em: por enquanto nada ainda
+- 🌱 Estou aprendendo: programação
+- 👯 Eu vou colaborar com: não vou
+- 🤔 Preciso de ajuda com: nada
+- 💬 Me pergunte sobre: qualquer coisa
+- 📫 Contato: fm6002199@gmail.com
+- 😄 Pronome: Ele/Dele
 - ⚡ Fun fact: sou surdo do ouvido esquerdo
 
 ᓚᘏᗢ
