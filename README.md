@@ -9,3 +9,4 @@
 - 😄 Pronouns: Ele/Dele
 - ⚡ Fun fact: sou surdo do ouvido esquerdo
 
+ᓚᘏᗢ
