@@ -1,4 +1,4 @@
-## mestre dos programas :-D
+## mestre dos programas ^_~
 
 - 🔭 I’m currently working on: por enquanto nada ainda
 - 🌱 I’m currently learning: programação
